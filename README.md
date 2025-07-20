@@ -2,7 +2,7 @@
 - 👀 I’m interested in Developing
 - 🌱 I’m currently learning Full Stack Development
 - 💞️ I’m looking to collaborate with a great team with the best Employees and very Friendly Persons
-- 📫 You can reach to me by sending me Message on my No: 8849511229
+- 📫 You can reach out to me by sending me Email: parmarkiran87505@gmail.com
 
 - I'm Looking Forwar to work with Anyone who is looking for an Development Person whether its an Website or any other thing 
 
